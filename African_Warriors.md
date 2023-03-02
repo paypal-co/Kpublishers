@@ -26,7 +26,6 @@ Despite his quiet nature, Aminou was fiercely loyal to his comrades. He risked h
 
 In the end, Aminou and his fellow warriors emerged victorious. They had defeated their enemy and secured their homeland. Aminou returned to his nomadic lifestyle, but he was forever changed by his experiences as a warrior. He knew that he would always be ready to answer the call to defend his people if it ever came again.
 
-This is a story from Africa about five warriors from different parts of africa with diversebackgrounds and techniques caming together to defend their kingdom against an impending invasion. Berber warriors were very skillful with bowl and arrow and never missed their targets.
 
 The Berbers are indigenous herders found in North Africa. Their population exists in clusters from the Pacific in Morocco to the Siwa Oasis in Egypt, with a large concentration in the middle of the Sahara Desert straddling the borders of northern Niger Tunisia and Libya.
 
