@@ -1,3 +1,4 @@
+
 # African Warriors 
 
 ### Authors :  Theo, Emma, Ben, Isaac and Patrick
@@ -10,10 +11,12 @@ Zulu warriors were known for their formidable skills and techniques in battle. T
 1.	Impi formation: The Zulu warriors fought in a tight formation known as the "impi." This formation allowed them to surround and overwhelm their enemies quickly and efficiently.
 2.	Use of shields: Zulu warriors were skilled in using their shields both for defense and offense. They used the shield to deflect incoming attacks and also to bash their opponents.
 3.	Spear throwing: The Zulu warriors were known for their deadly accuracy with spears. They could throw their spears over long distances with great precision, often hitting their target.
-4.	Hand-to-hand combat: Zulu warriors were also skilled in hand-to-hand combat. They were trained in various grappling techniques, strikes, and holds to overpower their opponents.
-5.	Stealth: Zulu warriors were experts in stealth and ambush tactics. They would often surprise their enemies by attacking from unexpected directions, using the element of surprise to gain an advantage.
-6.	Mobility: Zulu warriors were very mobile, allowing them to quickly maneuver around the battlefield. They were able to dodge attacks and move swiftly, making them difficult to hit.
-7.	Endurance: Zulu warriors were trained to endure long battles, often fighting for hours on end without rest. They had great physical endurance and mental toughness, enabling them to continue fighting even in the face of exhaustion.
+4.  Maasai warriors are known to be skilled intimidators
+
+5 Hand-to-hand combat: Zulu warriors were also skilled in hand-to-hand combat. They were trained in various grappling techniques, strikes, and holds to overpower their opponents.
+6.	Stealth: Zulu warriors were experts in stealth and ambush tactics. They would often surprise their enemies by attacking from unexpected directions, using the element of surprise to gain an advantage.
+7.	Mobility: Zulu warriors were very mobile, allowing them to quickly maneuver around the battlefield. They were able to dodge attacks and move swiftly, making them difficult to hit.
+8.	Endurance: Zulu warriors were trained to endure long battles, often fighting for hours on end without rest. They had great physical endurance and mental toughness, enabling them to continue fighting even in the face of exhaustion.
 Overall, Zulu warriors were highly skilled and formidable fighters. They used a combination of tactics and techniques to overwhelm their enemies quickly and efficiently.
 
 
