@@ -7,6 +7,18 @@
 
 This is a story from Africa about five warriors from different parts of africa with diverse backgrounds and techniques caming together to defend their kingdom against an impending invasion.
 
+The Masai people of East Africa are known for their warrior culture, which is characterized by their distinctive dress, weapons, and fighting techniques. Here are some of the skills and techniques commonly associated with Masai warriors:
+
+Spear throwing: The Masai are skilled in throwing spears accurately over long distances. They use a unique throwing technique that involves spinning the spear before release to increase its velocity and accuracy.
+
+Hand-to-hand combat: Masai warriors are trained in a form of hand-to-hand combat known as Engolo, which involves quick footwork, body feints, and strikes with hands and feet.
+Stick fighting: Masai warriors use a type of stick known as a rungu in combat. The rungu is made of hardwood and is used to strike opponents in close combat.
+Tracking: Masai warriors are skilled trackers and can follow the tracks of humans or animals for long distances.
+Stealth and camouflage: The Masai are experts at moving silently and remaining hidden in the bush. They use natural materials such as animal hides and vegetation to camouflage themselves.
+Endurance: Masai warriors are trained to endure long periods without food or water, as they often need to travel long distances in search of grazing land for their cattle.
+Courage: Courage is highly valued in Masai culture, and warriors are expected to demonstrate bravery in the face of danger.
+Overall, the Masai warrior culture emphasizes physical strength, agility, endurance, and courage, as well as a deep connection to the land and their cattle.
+
 Zulu warriors were known for their formidable skills and techniques in battle. They were expertly trained in various combat styles and were skilled in using a variety of weapons. Here are some of the techniques and skills that Zulu warriors were known for:
 Impi formation: The Zulu warriors fought in a tight formation known as the "impi." This formation allowed them to surround and overwhelm their enemies quickly and efficiently.
 Use of shields: Zulu warriors were skilled in using their shields both for defense and offense. They used the shield to deflect incoming attacks and also to bash their opponents.
