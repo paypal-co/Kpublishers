@@ -44,7 +44,7 @@
 </h1>
 <br>
 	<h1><h3> Authors  </h3><br>
-Team lead - Theo, Emma, Ben, Isaac and Patrick		
+Team lead - Theo (Nick Name pending!), Emma Shebang!, Benjamin Groovy!, Isaac JaCoCo! and Patrick (Nick name pending!!)	
 </h1>
 	
 <hr>
