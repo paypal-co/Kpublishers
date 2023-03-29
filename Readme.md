@@ -4,8 +4,8 @@ Benjamin Groovy
 
 Isaac JaCoCo
 
-Patrick
+Patrick (nick name pending)
 
-Theo
+Theo (nick name pending)
 
 Emma Shebang!
