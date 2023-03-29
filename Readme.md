@@ -1,7 +1,11 @@
 #Koftowntech
 
-Ben 
-Isaac
-Patrick
-Theo
-Emma
+Benjamin Groovy!
+
+Isaac JaCoCo!
+
+Patrick (Nick Name Pending)
+
+Theo (Nick name pending)
+
+Emma Shebang!
