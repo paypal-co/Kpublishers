@@ -1,7 +1,7 @@
 #Koftowntech
 
-Ben 
-Isaac
+Benjamin Groovy 
+Isaac JaCoCo
 Patrick
 Theo
-Emma
+Emma Shebang!
